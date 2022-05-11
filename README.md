@@ -9,5 +9,6 @@ https://discord.gg/4mz7kwSNzC
 - 🎊 Just wait!
 We also have a FiveM Server called Life In Paradise RolePlay. This Community is active and is looking for members who can display high quality of roleplay. 
 (we are utilizing the assets created by us!) 
+
 Join the fan server and apply here!!
 https://discord.gg/rxD6PR4Ytk
